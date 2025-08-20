@@ -2,6 +2,7 @@
 I have earned multiple certificates through active involvement in both technical &amp; cultural events.These include achievements in technical skill development, alongside recognition in cultural activities. These certificates reflect my commitment to continuous holistic growth across academics &amp; extracurricular domains.
 
 Abhikalpana Medical Camp 2025
+
 ![abk 1](https://github.com/user-attachments/assets/a521f9d4-bfe6-4549-8d8f-4a780198f253)
 
 Abhikalpana Medical Camp 2024
@@ -38,5 +39,6 @@ VERVE 2023
 ![verve ](https://github.com/user-attachments/assets/ebcb7e86-46a6-4925-ad9f-cd1906af41f3)
 
 Corizo 2024
+
 ![Screenshot_2025_0820_162805 1](https://github.com/user-attachments/assets/e41b8da4-1773-4dc4-baa8-1284177eef18)
 
